@@ -6,8 +6,8 @@
 
 ![Fin bild på Richard](https://4.bp.blogspot.com/-g49sgTaJsiI/XS4G8oIV00I/AAAAAAAABvg/U2dWjeyv044YWeC8N75M1NhcYy3Rrme-QCK4BGAYYCw/s80/Richard%2Bidag2.jpg)
 
-### Hittills har Richard Rökt totalt **4043** Cigaretter.
-### Det motsvarar ca. **23** Cigaretter / Inlägg.
+### Hittills har Richard Rökt totalt **3262** Cigaretter.
+### Det motsvarar ca. **22** Cigaretter / Inlägg.
 
 [Följ Richards Blogg](https://www.richardhandl.com/)
 
